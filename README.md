@@ -35,6 +35,14 @@ $${\color{lightyellow}c*h \space encouraged \space ! \space - Sonnellino}$$
 
  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/901568c8-b68d-4478-b903-dd2dcca21285" />
  fandums or stuff i like <3 : 
+
+
+
+
+
+ 
+
+ 
  Ｐｈｉｇｈｔｉｎｇ , 
 
  
