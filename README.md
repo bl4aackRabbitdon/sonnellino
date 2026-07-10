@@ -1,19 +1,19 @@
 <img width="235" height="116" alt="image" src="https://github.com/user-attachments/assets/e9ee9326-08d1-4e9a-9837-65b649dafd1b" />
 
 
-# ＳＯＮＮＥＬＬＩＮＯ ．
-SUCK IT UP.
+# able? ．
+leave me alone.
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/1c7c3e6d-9fd0-477c-b64e-77fcc1662a00" />
 
 
 
-$${\color{lightyellow}6teen \space + \space fictionkin \space !}$$  
+$${\color{lightyellow}6teen \space + \space fictionkin \space }$$  
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/eee34bc3-35f9-4971-8820-f944b242621f" />
 
 
 $${\color{orange}super \space active \space in \space pony town.}$$   
 
-$${\color{lightyellow}c*h \space encouraged \space ! \space - Sonnellino}$$   
+$${\color{lightyellow}c*h \space encouraged \space ! \space - able/abel}$$   
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/59848fdb-bbee-476a-ae3e-e5b22e0bd9f4" />
 
 
@@ -81,5 +81,5 @@ $${\color{lightyellow}c*h \space encouraged \space ! \space - Sonnellino}$$
 
  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/2fbe859e-98e3-4cc3-9b1a-34837f3734c0" />
 
- bay now guuyyysss<img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/5a207eb7-7187-4963-a05b-9d8e6ac3475a" />
+bye now..<img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/5a207eb7-7187-4963-a05b-9d8e6ac3475a" />
 
